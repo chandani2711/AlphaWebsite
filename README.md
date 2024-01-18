@@ -10,6 +10,17 @@ Here are some screenshorts of Alpha :
 
 <img width="960" alt="image" src="https://github.com/chandani2711/AlphaWebsite/assets/157036756/a78d60df-4922-4141-bf0e-8cbd83aade91">
 
+
 <img width="960" alt="image" src="https://github.com/chandani2711/AlphaWebsite/assets/157036756/93fa3d11-00f4-4093-a847-831f41ae852b">
+
+<img width="960" alt="image" src="https://github.com/chandani2711/AlphaWebsite/assets/157036756/ed8405a5-74ca-4ba2-bd10-cbc7c24388b8">
+
+<img width="960" alt="image" src="https://github.com/chandani2711/AlphaWebsite/assets/157036756/71d98534-4c9a-4c12-a667-448491d5df20">
+
+
+<img width="960" alt="image" src="https://github.com/chandani2711/AlphaWebsite/assets/157036756/7136477b-8a61-417f-aa33-5ecfb1c29d5a">
+
+
+
 
 
